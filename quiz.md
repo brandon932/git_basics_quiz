@@ -14,7 +14,7 @@ Can my answer be monkeys? no? ok maby cats, no wait, dogs.
 
 ###What would constitute a “perfect” day for you?
 
-Your answer goes here
+coding at gschool!!
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
